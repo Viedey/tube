@@ -1,1 +1,1 @@
-# https://videy.aridjaya.com/max/
+# https://videy.aridjaya.com/tube/
